@@ -1,2 +1,1 @@
-# about-me
-My first Github Project
+About Me  My name is Thomas Salveta, I love running and working out at the gym with my friends as a hobby, I also love reading and journaling. my goals are to go to Oakland University and be able to graduate with a degree in buisness and finance.
