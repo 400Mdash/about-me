@@ -1,0 +1,1 @@
+# My Goals: Go to macomb for 2 years and transfer to oakland U while carrying a 4.0,Work toward an internship while in college so that when I get out I have a stable job.  ## 2026 – Learn Cyber Security 
